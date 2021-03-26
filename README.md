@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 --> 
 
-Kontakt 💬:
-  Discord: Happy_Lama_#7727
+Kontakt:
+Discord: Happy_Lama_#7727
   
